@@ -1,3 +1,5 @@
+[Read Me](README.md) | [Cast](Cast.md) | [Collectables](Collectables.md)
+
 ![Starrgazers_Logo](images/logo_stargazers_bug.svg)
 # Stargazers
 
