@@ -4,12 +4,3 @@ We have the largest inventory of fan favorite items on the web. And if we don't 
 
 
 https://github.com/RichardKF/publishingGithub/assets/172638002/d60992d2-78cb-4b3e-bf21-45461df2e6fd
-
-
-
-https://github.com/RichardKF/publishingGithub/assets/172638002/d60992d2-78cb-4b3e-bf21-45461df2e6fd
-
-
-
-https://github.com/RichardKF/publishingGithub/assets/172638002/d60992d2-78cb-4b3e-bf21-45461df2e6fd
-
